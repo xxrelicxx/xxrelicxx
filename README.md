@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @xxrelicxx
 - 👀 I’m interested in network automation. 
 - 🌱 I’m currently learning how to create multi-vendor cross-platform api's
-- 💞️ I’m looking to collaborate on how to become wealthy from the talents I wield
+- 💞️ I’m looking to collaborate on how to make the world a better place with the talents I wield
 - 📫 How to reach me, well, you will find a way if you really want to
 - 😄 Pronouns: xxnopexx
 - ⚡ Fun fact: your perception is not my reality
